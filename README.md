@@ -1,1 +1,1 @@
-an html created by whois4ndyyxx
+an html created by whois4ndyyxx These are some of the small projects I did that I'm still practicing. 
